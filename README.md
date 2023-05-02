@@ -17,17 +17,6 @@
 🔥 NAM TO SUNAHI HOGA
 
 🌐 Socials:
-Facebook Instagram TikTok YouTube
+Facebook:-https://www.facebook.com/profile.php?id=100000302924869
+Instagram:-https://instagram.com/shivamkunwar59?igshid=ZDdkNTZiNTM=
 
-💻 Tech Stack:
-C++ CSS3 Python PHP .Net
-
-📊 GitHub Stats:
-
-
-
-
-🏆 GitHub Trophies
-
-
-✍️ Random Dev Quote
