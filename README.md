@@ -3,8 +3,13 @@
 
 
 
-# 💫 About Me:
-ABOUT ME✨<br>CLONER TRICKER HACKER<br>💫FROM NEPAL💫NAM TOH SUNA HI HOGA<br>💫SOON GONNA BE RISE
+# 🌐 ABOUT ME
+💫CLONER 
+💫TRICKER
+💫HACKER
+💫FROM NEPAL
+✨𝗛𝗔𝗖𝗞𝗜𝗡𝗚 𝗜𝗦 𝗡𝗢𝗧 𝗔 𝗖𝗥𝗜𝗠𝗘 𝗜𝗧𝗦 𝗔 𝗚𝗔𝗠𝗘 𝗔𝗚𝗔𝗜𝗡𝗦𝗧 𝗧𝗛𝗘 𝗦𝗬𝗦𝗧𝗘𝗠<<😉
+
 
 
 ## 🌐 Socials:
