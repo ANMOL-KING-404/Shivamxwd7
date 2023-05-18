@@ -8,7 +8,10 @@ ABOUT ME✨<br>CLONER TRICKER HACKER<br>💫FROM NEPAL<br>💫SELFISH<br>💫NAM
 
 
 ## 🌐 Socials:
-[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/Shivam xwd) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/S H I V A M B E B<<🤍) 
+°𝗦𝗛𝗜𝗩𝗔𝗠 𝗫𝗪𝗗
+°𝗦𝗛𝗜𝗩𝗨 𝗕𝗘𝗕
+
+
 
 # 💻 Tech Stack:
 ![Java](https://img.shields.io/badge/java-%23ED8B00.svg?style=for-the-badge&logo=java&logoColor=white) ![Python](https://img.shields.io/badge/python-3670A0?style=for-the-badge&logo=python&logoColor=ffdd54) ![ANDROID](https://img.shields.io/badge/android-%2320232a.svg?style=for-the-badge&logo=android&logoColor=%a4c639)
